@@ -4,7 +4,6 @@
 - My main role is Front End but I am also experienced with Back End.
 - Looking to add Ethereum developer technologies to my stack soon.
 - I’m looking for ONG's to collaborate with as a volunteer. If is your case please contact me using Linkedin button just below these lines.
-- New Line
 
 ---
 
